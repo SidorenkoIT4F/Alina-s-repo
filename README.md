@@ -3,4 +3,4 @@ second experience
 
 police
 
-Loks like hard life experience. :-(
+Looks like hard life experience. :-(
